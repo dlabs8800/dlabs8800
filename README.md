@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @dlabs8800
-We work for ourselved--->
+We work for ourselves--->
